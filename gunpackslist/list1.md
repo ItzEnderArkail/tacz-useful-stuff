@@ -1,4 +1,4 @@
-# Page 1
+# Page 1 - 5 Stars
 
 ### [HareTactics](https://www.curseforge.com/minecraft/customization/tacz-haretactics-pack)
 - Creator: mt140 (Discord ID: 852861976065605652)
